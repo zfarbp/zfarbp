@@ -1,1 +1,1 @@
-![](https://github.com/zfarbp/zfarbp/blob/master/z.png)
+![](https://github.com/zfarbp/zfarbp/blob/master/zf.png)
